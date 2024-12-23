@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @NAGACHIRUDEEP-P
-- 👀 I’m interested to work in a core company
 - 🌱 I’m currently pursuing my Btech in ECE in Annamacharya institute of technology & sciences,Tirupati
 - 📫 How to reach me nagachirudeep@gmail.com
 <!---
